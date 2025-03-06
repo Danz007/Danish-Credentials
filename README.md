@@ -1,0 +1,2 @@
+The first document is Danish's latest CV.
+Second document showcases the neverbefore turnaround / transformation that Danish brought to Liberty as its Chief Executive Officer. It also captures the media coverage for various initiatives and brings around the use case of how Danish led to people & culture excellence at the Company. It also demonstrates his thought leadership in the fields of AI, Data Science, Digital and Industry coverage.
